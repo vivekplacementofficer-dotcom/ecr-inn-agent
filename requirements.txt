@@ -1,0 +1,4 @@
+flask==3.0.3
+twilio==9.3.0
+anthropic==0.40.0
+gunicorn==22.0.0
