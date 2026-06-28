@@ -49,9 +49,9 @@ Suitable for: family holidays, reunions, birthday parties, candle-lit dinners, g
 
 ## 6. Contact & Booking
 
-- **Phone (bookings):** +91 63744 52235, +91 96003 26222 (Beach House Manager)
+- **Phone (bookings):** +91 99428 22000, +91 96003 26222 (Beach House Manager)
 - **Landline:** 044-27537967
-- **WhatsApp:** +91 63744 52235
+- **WhatsApp:** +91 99428 22000
 - **Email:** info@ecrinnresorts.in
 - **Website:** www.ecrinnresorts.in
 - **Facebook:** ECR Inn Beach House
